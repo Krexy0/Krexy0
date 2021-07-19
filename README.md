@@ -1,0 +1,4 @@
+- Hi, I’m @Krexy0
+- I’m interested in Everything about computers and Math
+- I’m currently learning Python
+- I’m looking to collaborate on Anything that can help me get smarter and better
